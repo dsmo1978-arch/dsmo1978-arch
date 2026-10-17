@@ -1,2 +1,2 @@
-### 
-### IT Manager. Open source contributor. Full-stack developer. DevOps engineer. Infrastructure System Engineer. 
+#   DI'SHON D SMOOT
+### IT MANAGER | SOFTWARE PROGRAMMER | SENIOR IT ANALYST | SYSTEMS ENGINEER | DEVELOPER 
